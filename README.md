@@ -1,16 +1,13 @@
 ### Hi there 👋
 
---
-**Klesti8701/Klesti8701** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+---
+**Klesti8701/Klesti8701** 
 
 - 🔭 I’m currently working on LHIND
 - 🌱 I’m currently learning DevSecOps
-- 👯 I’m looking to collaborate on tech 
-- 🤔 I’m looking for help with focus
+- 👯 I’m looking to improve my self  
+- 🤔 I’m looking for people with good atitudes 
 - 💬 Ask me about anything
-- 📫 How to reach me: discord
-- 😄 Pronouns: ...
+- 📫 How to reach me: discord:K|3$+!#0588
 - ⚡ Fun fact: im a geek
---
+---
