@@ -11,6 +11,7 @@
 - 📫 How to reach me: discord:K|3$+!#0588
 - ⚡ Fun fact: im a geek🕵️‍♂️
 - 🐱‍💻 In free time i play CTFs
+
 ![](https://komarev.com/ghpvc/?username=klesti8701&color=blue)
 ---
 
@@ -24,5 +25,5 @@
 ---
 ### Contact 
 [![](https://content.linkedin.com/content/dam/me/business/en-us/amp/brand-site/v2/bg/LI-Bug.svg.original.svg)](https://www.linkedin.com/in/klesti-fetiu-6b5b141b4/)
-![](https://static.vecteezy.com/system/resources/previews/005/557/776/original/phone-icon-set-of-flat-phone-and-mobile-phone-symbol-collection-free-vector.jpg)
+![](https://icon-library.com/images/on-phone-icon/on-phone-icon-14.jpg) +355676882488
 ---
