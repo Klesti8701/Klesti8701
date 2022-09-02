@@ -27,6 +27,6 @@
 [![](https://content.linkedin.com/content/dam/me/business/en-us/amp/brand-site/v2/bg/LI-Bug.svg.original.svg)](https://www.linkedin.com/in/klesti-fetiu-6b5b141b4/)
 
 
-📞 +355676882488
+[📞 +355676882488]
 
 ---
