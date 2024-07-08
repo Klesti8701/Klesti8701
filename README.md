@@ -8,7 +8,7 @@
 - 🤵 I’m looking to improve my self  
 - 🤔 I’m looking for people with good attitudes 
 - 💬 Ask me about anything
-- 📫 How to reach me: discord:K|3$+!#0588
+- 📫 How to reach me: discord:klesti8701
 - ⚡ Fun fact: im a geek🕵️‍♂️
 - 🐱‍💻 In free time i play CTFs
 
